@@ -1,9 +1,9 @@
-𝓗𝓮𝔂 𝓑𝓾𝓭!
+<p align="center">𝓗𝓮𝔂 𝓑𝓾𝓭!</p>
 <p align="center"><img width="300" height="400" alt="Untitled796_20260511175156 (1)" src="https://github.com/user-attachments/assets/c42ba4e0-5cfa-4167-b197-b5ecd9ff93f6" />
 </p>
 
 
-          This is a WIP!! I've never made a repository before so.. shrugs
+<p align="center">This is a WIP!! I've never made a repository before so.. shrugs</p>
 
 
 <!--
