@@ -1,8 +1,12 @@
 𝓗𝓮𝔂 𝓑𝓾𝓭!
+<img width="300" height="400" alt="Untitled796_20260511175156 (1)" src="https://github.com/user-attachments/assets/b1dbee3a-625b-4072-9cb5-0d65f69bb461" />
+
+
+
 
 <!--
 **Nathan-Freeling/Nathan-Freeling** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-<img width="909" height="1480" alt="image" src="https://github.com/user-attachments/assets/45ad9bd6-4dc3-489a-967e-2b27ed54b4c1" />
+
 
 Here are some ideas to get you started:
 
