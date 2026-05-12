@@ -1,10 +1,10 @@
-<p align="center">𝓗𝓮𝔂 𝓑𝓾𝓭!</p>
+<p align="center">``𝘖𝘯𝘦 𝘣𝘢𝘥 𝘥𝘢𝘺? 𝘐 𝘩𝘢𝘥 𝘢 𝘭𝘰𝘵 𝘰𝘧 𝘣𝘢𝘥 𝘥𝘢𝘺𝘴.''</p>
 <p align="center"><img width="30%" alt="NathanandAbaddonsadwompwompp" src="https://github.com/user-attachments/assets/62d9d80d-2d9e-4106-985d-f8d508329100" </p>
 
 
 
 
-<p align="center">``𝘖𝘯𝘦 𝘣𝘢𝘥 𝘥𝘢𝘺? 𝘐 𝘩𝘢𝘥 𝘢 𝘭𝘰𝘵 𝘰𝘧 𝘣𝘢𝘥 𝘥𝘢𝘺𝘴.''</p>
+<p align="center">
 
 
 <!--
