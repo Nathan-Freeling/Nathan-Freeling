@@ -2,6 +2,7 @@
 
 <!--
 **Nathan-Freeling/Nathan-Freeling** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img width="909" height="1480" alt="image" src="https://github.com/user-attachments/assets/45ad9bd6-4dc3-489a-967e-2b27ed54b4c1" />
 
 Here are some ideas to get you started:
 
