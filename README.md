@@ -1,5 +1,6 @@
 𝓗𝓮𝔂 𝓑𝓾𝓭!
-<picture></picture> width="300" height="400" alt="Untitled796_20260511175156 (1)" src="https://github.com/user-attachments/assets/b1dbee3a-625b-4072-9cb5-0d65f69bb461" />
+<img width="300" height="400" alt="Untitled796_20260511175156 (1)" src="https://github.com/user-attachments/assets/c42ba4e0-5cfa-4167-b197-b5ecd9ff93f6" />
+
 
           This is a WIP!! I've never made a repository before so.. shrugs
 
