@@ -1,5 +1,5 @@
 <p align="center">𝓗𝓮𝔂 𝓑𝓾𝓭!</p>
-<p align="center"><img width="300" height="400"<img width="3600" height="4800" alt="NathanandAbaddonsadwompwompp" src="https://github.com/user-attachments/assets/62d9d80d-2d9e-4106-985d-f8d508329100" />/p>
+<p align="center"><img width="300" height="400"<img width="3600" height="4800" alt="NathanandAbaddonsadwompwompp" src="https://github.com/user-attachments/assets/62d9d80d-2d9e-4106-985d-f8d508329100" 
 
 
 
