@@ -11,9 +11,9 @@
   <br/>
   
 
-<p align="right"> "𝐓𝐡𝐞 𝐖𝐨𝐨𝐝𝐬𝐦𝐚𝐧 𝐢𝐬 𝐚 𝐠𝐫𝐞𝐚𝐭 𝐦𝐚𝐧."  <br/>
+<p align="right"> "𝐎𝐡 𝐦𝐲 𝐆𝐨𝐝. 𝐖𝐡𝐚𝐭 𝐢𝐬 𝐲𝐨𝐮𝐫 𝐨𝐛𝐬𝐞𝐬𝐬𝐢𝐨𝐧 𝐰𝐢𝐭𝐡 𝐭𝐡𝐞𝐬𝐞 𝐠𝐡𝐨𝐬𝐭𝐬!?"  <br/>
     <br/>
-<p align="center"> "𝘠𝘦𝘢𝘩, 𝘐 𝘸𝘰𝘶𝘭𝘥𝘯’𝘵 𝘴𝘢𝘺 𝘨𝘳𝘦𝘢𝘵." <br/>
+<p align="center"> "𝘛𝘩𝘦𝘺 𝘥𝘰𝘯’𝘵 𝘩𝘢𝘷𝘦 𝘺𝘰𝘶!" <br/>
   <br/>
 
  
@@ -35,6 +35,14 @@
   * I can come off as apathetic or indifferent, this is in no part due to you, I just have my own issues.
 </details></div>
 
+<br/><br/><br/>
+
+<div align="center">"𝐖𝐞𝐥𝐥, 𝐭𝐡𝐚𝐭’𝐬 𝐧𝐨𝐭 𝐠𝐨𝐧𝐧𝐚 𝐡𝐚𝐩𝐩𝐞𝐧. 𝐘𝐨𝐮'𝐫𝐞 𝐦𝐲 𝐛𝐫𝐨𝐭𝐡𝐞𝐫."<br/>
+ <br/>
+ <div align="right">"𝘐 𝘬𝘯𝘰𝘸. 𝘉𝘶𝘵 𝘐'𝘮 𝘢𝘭𝘴𝘰 𝘰𝘯𝘦 𝘰𝘧 𝘵𝘩𝘦𝘮 𝘯𝘰𝘸. 𝘈𝘯𝘥 𝘐 𝘤𝘢𝘯'𝘵 𝘢𝘣𝘢𝘯𝘥𝘰𝘯 𝘵𝘩𝘦𝘮 𝘢𝘯𝘥 𝘵𝘳𝘢𝘱 𝘺𝘰𝘶."   <br/>
+    <br/>
+       <br/>
+
 <div align="center"><details>
   <summary>DNI</summary><br/>
  <p align="right"> "𝐈 𝐬𝐭𝐨𝐨𝐝 𝐢𝐝𝐥𝐲 𝐛𝐲 𝐰𝐡𝐢𝐥𝐞 𝐭𝐡𝐢𝐬 𝐰𝐚𝐥𝐤𝐢𝐧𝐠 𝐚𝐫𝐠𝐮𝐦𝐞𝐧𝐭 𝐟𝐨𝐫 𝐞𝐥𝐝𝐞𝐫 𝐚𝐛𝐮𝐬𝐞 𝐚𝐬𝐬𝐚𝐮𝐥𝐭𝐞𝐝 𝐦𝐲 𝐜𝐡𝐚𝐫𝐚𝐜𝐭𝐞𝐫."  <br/>
@@ -54,7 +62,7 @@
       - <sub>not just chatgpt! That also includes character ai.</sub>
     - Encourages SH, sends photos of, and/or openly discusses the topic without warnings beforehand.
       - <sub>Healed scars in photos is fine!</sub>
-      
+      <br/>
     
    * ### Fandom Specific:
       - Estherdonn, Nathaddon, Benaddon, and whatever other ships you all have decided to come up with for Abaddon. **DNI.**
@@ -62,9 +70,31 @@
         - <sub>Katherine is abusive believers, you're media illiterate. This is a Katherine appreciative household.</sub>
       - Albert's Playhouse <sub>and any media that is associated with it/similar</sub> (Bearnuts, House of Puso,<sub> anything else I haven't been unfortunate enough to come across).</sub>
       - Slugcat shippers.
+      <br/>
+      
+   * ### Boundaries:
+     - Venting w/out permission/asking first.
+     - Don't flirt with me or ask me to date you.
+     - If I tell you to stop doing something & it keeps happening, I will either become very mean or I will block <sub>(depends on what keeps occurring).</sub>
+     - There's certain medias that I don't enjoy the fandoms of, or the shows, <sub>(Hazbin Hotel/Helluva Boss as an example)</sub>. Not a strict DNI but I'd rather not discuss the media.
+       <br/>
+       - Don't be the person that makes me add onto this section, ok? ok.<br/>
+
+ 
+<br/><br/><br/>
+
+<div align="center">"𝐈 𝐡𝐚𝐯𝐞 𝐡𝐚𝐥𝐟 𝐚 𝐦𝐢𝐧𝐝 𝐭𝐨 𝐤𝐢𝐥𝐥 𝐦𝐲𝐬𝐞𝐥𝐟 𝐢𝐧 𝐟𝐫𝐨𝐧𝐭 𝐨𝐟 𝐲𝐨𝐮."<br/>
+ <br/>
+ <div align="right">"𝘚𝘵𝘦𝘱 𝘰𝘷𝘦𝘳 𝘵𝘩𝘦 𝘱𝘳𝘰𝘱𝘦𝘳𝘵𝘺 𝘭𝘪𝘯𝘦, 𝘢𝘯𝘥 𝘣𝘦 𝘮𝘺 𝘨𝘶𝘦𝘴𝘵!"
+ 
 
 
    </details></div>
 
    <div align="right"><details>
   <summary>BYI</summary><br/>
+
+  <p align="right"> "𝐓𝐡𝐞 𝐖𝐨𝐨𝐝𝐬𝐦𝐚𝐧 𝐢𝐬 𝐚 𝐠𝐫𝐞𝐚𝐭 𝐦𝐚𝐧."  <br/>
+    <br/>
+<p align="center"> "𝘠𝘦𝘢𝘩, 𝘐 𝘸𝘰𝘶𝘭𝘥𝘯’𝘵 𝘴𝘢𝘺 𝘨𝘳𝘦𝘢𝘵." <br/>
+  <br/>
