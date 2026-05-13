@@ -1,24 +1,12 @@
+
 <p align="center">``𝘖𝘯𝘦 𝘣𝘢𝘥 𝘥𝘢𝘺? 𝘐 𝘩𝘢𝘥 𝘢 𝘭𝘰𝘵 𝘰𝘧 𝘣𝘢𝘥 𝘥𝘢𝘺𝘴.''</p>
 <p align="center"><img width="40%" alt="NathanandAbaddonsadwompwompp" src="https://github.com/user-attachments/assets/62d9d80d-2d9e-4106-985d-f8d508329100" </p>
 
 
+<details>
+  <summary>Main Info</summary><br/>
+  <br/>
 
-
-<p align="center">
-
-
-<!--
-**Nathan-Freeling/Nathan-Freeling** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  * ### This is a WIP!!
+  * This is a WIP!!
+  * This is a WIP!!
