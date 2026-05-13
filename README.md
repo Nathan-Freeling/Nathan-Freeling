@@ -42,7 +42,17 @@
 <p align="center"> "𝘉𝘶𝘵 𝘢 𝘮𝘢𝘯 𝘩𝘢𝘴 𝘢 𝘭𝘪𝘮𝘪𝘵!" <br/>
   <p align="left">
 <br/>
-  * 
+
+  * My DNI doubles as my boundaries list, if you're intentionally crossing my boundaries then you need to think twice about how good of a person you are.
+    - The basics of being racist/transphobic/homophobic.
+    - Radqueers
+    - Proshippers/darkshippers & anybody who supports or is actively friends with individuals who identify as such.
+    - Ableist, including discriminating against personality disorders or psychotic disorders.
+    - Romance/flirting is your whole personality.
+    - 
+    - ### Fandom Specific:
+      - Estherdonn, Nathaddon, Benaddon, and whatever other ships you all have decided to come up with for Abaddon. DNI.
+      - 
 
 
    </details></div>
