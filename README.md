@@ -55,7 +55,7 @@
    * ### Fandom Specific:
       - Estherdonn, Nathaddon, Benaddon, and whatever other ships you all have decided to come up with for Abaddon. **DNI.**
         - <sub>Just in general weird HauHo fans (who already fit my above dni) dni!!! If you interact I **will** make fun of you and be mean to you.</sub>
-      - 
+        - <sub>Katherine is abusive believers, you're media illiterate. This is a Katherine appreciative household.</sub>
 
 
    </details></div>
