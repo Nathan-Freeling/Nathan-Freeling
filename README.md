@@ -92,9 +92,21 @@
    </details></div>
 
    <div align="right"><details>
-  <summary>BYI</summary><br/>
+  <summary>BYI/BYF</summary><br/>
 
   <p align="right"> "𝐓𝐡𝐞 𝐖𝐨𝐨𝐝𝐬𝐦𝐚𝐧 𝐢𝐬 𝐚 𝐠𝐫𝐞𝐚𝐭 𝐦𝐚𝐧."  <br/>
     <br/>
 <p align="center"> "𝘠𝘦𝘢𝘩, 𝘐 𝘸𝘰𝘶𝘭𝘥𝘯’𝘵 𝘴𝘢𝘺 𝘨𝘳𝘦𝘢𝘵." <br/>
   <br/>
+  <div align="left">
+
+  * Disorganized attachment style, prone to anxiety + paranoia.
+    - <sub>Disorganized = fearful avoidant.</sub>
+  * Can come off as blunt when battery is depleted.
+    - <sub>If I feel that being rude isn't warranted, I become quiet.</sub>
+  * Not a good conversationalist.
+    - Depending on my mood, most of the time I like to listen to others talk!
+    - <sub>I'm also just awkward, I apologize for this in advance.</sub>
+    - <sub>Since I'm so bad at conversations, I usually wait for others to interact with me first.</sub>
+      - <sub>Please feel free to sit with me on ponytown! C+H is heavily encouraged if we're in the same fandom, esp with HauHo ponies! Even if I'm not talking I enjoy your company!</sub>
+      
