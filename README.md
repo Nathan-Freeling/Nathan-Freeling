@@ -4,7 +4,9 @@
 <p align="center"><img width="40%" alt="NathanandAbaddonsadwompwompp" src="https://github.com/user-attachments/assets/62d9d80d-2d9e-4106-985d-f8d508329100" </p>
  <p align="right"> "𝘐 𝘩𝘢𝘥 𝘢 𝘭𝘰𝘵 𝘰𝘧 𝘣𝘢𝘥 𝘥𝘢𝘺𝘴.''</p>
 
-<details>
+
+
+<div align="left"><details>
   <summary>Main Info</summary><br/>
   <br/>
   
@@ -30,5 +32,15 @@
   * I have three rats atm!
      - <sub>Cal, my oldest boy is three years old. My younger two boys (Slug & Snail) are one year old!</sub>
      <br/>
-  * I can come off as apathetic or indifferent, this is in no part due to you, I just have my own issues.   
+  * I can come off as apathetic or indifferent, this is in no part due to you, I just have my own issues.
+</details></div>
 
+<div align="center"><details>
+  <summary>DNI</summary><br/>
+  <br/>
+   * WIP
+
+   </details></div>
+
+   <div align="right"><details>
+  <summary>BYI</summary><br/>
