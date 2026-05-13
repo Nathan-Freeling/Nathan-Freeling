@@ -19,11 +19,16 @@
   * I'm an artist & I like to write occasionally 
   * Aroace + Agender
     - <sub>They/He/She pronouns, I don't really mind.</sub>
+    <br/>
   * I love "weird" animals!
     - <sub>Sharks, rats, giant Isopods, bugs in general.</sub>
       - <sub>While those are my "mains" I like to learn about all weird animals, like leeches or some of the less "favorable" creatures.</sub>
+      <br/>
   * I also love taxidermy/Bug pinning and bone collecting!
     - <sub>I don't do any of these things myself, rather I collect them.</sub>
+    <br/>
   * I have three rats atm!
      - <sub>Cal, my oldest boy is three years old. My younger two boys (Slug & Snail) are one year old!</sub>
+     <br/>
+  * I can come off as apathetic or indifferent, this is in no part due to you, I just have my own issues.   
 
