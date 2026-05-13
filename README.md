@@ -40,9 +40,10 @@
  <p align="right"> "𝐈 𝐬𝐭𝐨𝐨𝐝 𝐢𝐝𝐥𝐲 𝐛𝐲 𝐰𝐡𝐢𝐥𝐞 𝐭𝐡𝐢𝐬 𝐰𝐚𝐥𝐤𝐢𝐧𝐠 𝐚𝐫𝐠𝐮𝐦𝐞𝐧𝐭 𝐟𝐨𝐫 𝐞𝐥𝐝𝐞𝐫 𝐚𝐛𝐮𝐬𝐞 𝐚𝐬𝐬𝐚𝐮𝐥𝐭𝐞𝐝 𝐦𝐲 𝐜𝐡𝐚𝐫𝐚𝐜𝐭𝐞𝐫."  <br/>
     <br/>
 <p align="center"> "𝘉𝘶𝘵 𝘢 𝘮𝘢𝘯 𝘩𝘢𝘴 𝘢 𝘭𝘪𝘮𝘪𝘵!" <br/>
-  <p align="left">
+ 
 <br/>
-
+<div align="left">
+ 
   * My DNI doubles as my boundaries list, if you're intentionally crossing my boundaries then you need to think twice about how good of a person you are.
     - The basics of being racist/transphobic/homophobic.
     - Radqueers
