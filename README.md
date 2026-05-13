@@ -109,4 +109,12 @@
     - <sub>I'm also just awkward, I apologize for this in advance.</sub>
     - <sub>Since I'm so bad at conversations, I usually wait for others to interact with me first.</sub>
       - <sub>Please feel free to sit with me on ponytown! C+H is heavily encouraged if we're in the same fandom, esp with HauHo ponies! Even if I'm not talking I enjoy your company!</sub>
+    - I don't do roleplays, I'd rather participate in silly ones, <sub>most of the time when I'm "participating" in a roleplay it's because I'm in a decent mood and. people just don't ask beforehand.</sub>
+  * I don't friend people who I haven't had a decent conversation with or who I don't see myself talking to again in the future.
+    - <sub>Likewise, I'll unfriend you if we haven't spoken in a while, if it becomes a pattern of (You unfriended me, can we speak again?) and then not talking, I'm not adding you back.</sub><br/>
+
+ 
+<br/><br/><br/>
+
+<div align="right">"𝙏𝙝𝙚 𝙥𝙤𝙞𝙣𝙩 𝙞𝙨, 𝙝𝙖𝙪𝙣𝙩 𝙮𝙤𝙪 𝙡𝙖𝙩𝙚𝙧, 𝙗𝙪𝙙."<br/>
       
