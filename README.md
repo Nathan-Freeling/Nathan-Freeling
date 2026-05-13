@@ -33,13 +33,13 @@
      - <sub>Cal, my oldest boy is three years old. My younger two boys (Slug & Snail) are one year old!</sub>
      <br/>
   * I can come off as apathetic or indifferent, this is in no part due to you, I just have my own issues.
-</details></div>
+
 
 <br/><br/><br/>
 
 <div align="center">"𝐖𝐞𝐥𝐥, 𝐭𝐡𝐚𝐭’𝐬 𝐧𝐨𝐭 𝐠𝐨𝐧𝐧𝐚 𝐡𝐚𝐩𝐩𝐞𝐧. 𝐘𝐨𝐮'𝐫𝐞 𝐦𝐲 𝐛𝐫𝐨𝐭𝐡𝐞𝐫."<br/>
  <br/>
- <div align="right">"𝘐 𝘬𝘯𝘰𝘸. 𝘉𝘶𝘵 𝘐'𝘮 𝘢𝘭𝘴𝘰 𝘰𝘯𝘦 𝘰𝘧 𝘵𝘩𝘦𝘮 𝘯𝘰𝘸. 𝘈𝘯𝘥 𝘐 𝘤𝘢𝘯'𝘵 𝘢𝘣𝘢𝘯𝘥𝘰𝘯 𝘵𝘩𝘦𝘮 𝘢𝘯𝘥 𝘵𝘳𝘢𝘱 𝘺𝘰𝘶."   <br/>
+ <div align="right">"𝘐 𝘬𝘯𝘰𝘸. 𝘉𝘶𝘵 𝘐'𝘮 𝘢𝘭𝘴𝘰 𝘰𝘯𝘦 𝘰𝘧 𝘵𝘩𝘦𝘮 𝘯𝘰𝘸. 𝘈𝘯𝘥 𝘐 𝘤𝘢𝘯'𝘵 𝘢𝘣𝘢𝘯𝘥𝘰𝘯 𝘵𝘩𝘦𝘮 𝘢𝘯𝘥 𝘵𝘳𝘢𝘱 𝘺𝘰𝘶." </details></div>  <br/>
     <br/>
        <br/>
 
