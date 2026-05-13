@@ -52,10 +52,16 @@
     - Romance/flirting is your whole personality.
     - AI art/writing, & the use of AI chatbots.
       - <sub>not just chatgpt! That also includes character ai.</sub>
+    - Encourages SH, sends photos of, and/or openly discusses the topic without warnings beforehand.
+      - <sub>Healed scars in photos is fine!</sub>
+      
+    
    * ### Fandom Specific:
       - Estherdonn, Nathaddon, Benaddon, and whatever other ships you all have decided to come up with for Abaddon. **DNI.**
         - <sub>Just in general weird HauHo fans (who already fit my above dni) dni!!! If you interact I **will** make fun of you and be mean to you.</sub>
         - <sub>Katherine is abusive believers, you're media illiterate. This is a Katherine appreciative household.</sub>
+      - Albert's Playhouse <sub>and any media that is associated with it/similar</sub> (Bearnuts, House of Puso,<sub> anything else I haven't been unfortunate enough to come across).</sub>
+      - Slugcat shippers.
 
 
    </details></div>
