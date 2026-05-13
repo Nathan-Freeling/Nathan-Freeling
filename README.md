@@ -44,15 +44,17 @@
 <br/>
 <div align="left">
  
-  * My DNI doubles as my boundaries list, if you're intentionally crossing my boundaries then you need to think twice about how good of a person you are.
+  * **My DNI doubles as my boundaries list, if you're intentionally crossing my boundaries then you need to think twice about how good of a person you are.**
     - The basics of being racist/transphobic/homophobic.
     - Radqueers
-    - Proshippers/darkshippers & anybody who supports or is actively friends with individuals who identify as such.
-    - Ableist, including discriminating against personality disorders or psychotic disorders.
+    - Proshippers/darkshippers <sub>& anybody who supports or is actively friends with individuals who identify as such.</sub>
+    - Ableist, including discriminating against <sub>(or romanticizing)</sub> personality disorders or psychotic disorders.
     - Romance/flirting is your whole personality.
-    - 
-    - ### Fandom Specific:
-      - Estherdonn, Nathaddon, Benaddon, and whatever other ships you all have decided to come up with for Abaddon. DNI.
+    - AI art/writing, & the use of AI chatbots.
+      - <sub>not just chatgpt! That also includes character ai.</sub>
+   * ### Fandom Specific:
+      - Estherdonn, Nathaddon, Benaddon, and whatever other ships you all have decided to come up with for Abaddon. **DNI.**
+        - <sub>Just in general weird HauHo fans (who already fit my above dni) dni!!! If you interact I **will** make fun of you and be mean to you.</sub>
       - 
 
 
