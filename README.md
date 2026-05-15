@@ -34,7 +34,10 @@
      <br/>
   * I can come off as apathetic or indifferent, this is in no part due to you, I just have my own issues.<br/>
   <br/>
-<summary>Fandoms</summary>
+  <div align="left"><details>
+<summary>Fandoms</summary>  
+<br/>
+  * ℌ𝔞𝔲𝔫𝔱𝔢𝔡 ℌ𝔬𝔱𝔢𝔩
 
 
 <br/><br/><br/>
