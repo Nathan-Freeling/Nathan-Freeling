@@ -7,7 +7,7 @@
 
 
 <div align="left"><details>
-  <summary>Main Info</summary><br/>
+  <summary>Main Info + Fandoms</summary><br/>
   <br/>
   
 
@@ -32,7 +32,9 @@
   * I have three rats atm!
      - <sub>Cal, my oldest boy is three years old. My younger two boys (Slug & Snail) are one year old!</sub>
      <br/>
-  * I can come off as apathetic or indifferent, this is in no part due to you, I just have my own issues.
+  * I can come off as apathetic or indifferent, this is in no part due to you, I just have my own issues.<br/>
+  <br/>
+<summary>Fandoms</summary>
 
 
 <br/><br/><br/>
