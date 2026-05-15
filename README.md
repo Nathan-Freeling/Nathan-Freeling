@@ -37,7 +37,35 @@
   <div align="left"><details>
 <summary>Fandoms</summary>  
 <br/>
-  * ℌ𝔞𝔲𝔫𝔱𝔢𝔡 ℌ𝔬𝔱𝔢𝔩
+   
+* ℌ𝔞𝔲𝔫𝔱𝔢𝔡 ℌ𝔬𝔱𝔢𝔩
+* 𝐒𝐞𝐯𝐞𝐫𝐚𝐧𝐜𝐞
+* 𝐖𝐢𝐝𝐨𝐰'𝐬 𝐁𝐚𝐲
+* 𝘙𝘢𝘪𝘯 𝘞𝘰𝘳𝘭𝘥
+* 𝘔𝘢𝘥𝘰𝘬𝘢 𝘔𝘢𝘨𝘪𝘤𝘢
+* 𝘛𝘩𝘦 𝘖𝘸𝘭 𝘏𝘰𝘶𝘴𝘦
+* 𝘖𝘷𝘦𝘳 𝘛𝘩𝘦 𝘎𝘢𝘳𝘥𝘦𝘯 𝘞𝘢𝘭𝘭
+* 𝘎𝘳𝘢𝘷𝘪𝘵𝘺 𝘍𝘢𝘭𝘭𝘴
+* 𝘜𝘭𝘵𝘳𝘢𝘬𝘪𝘭𝘭
+* 𝘚𝘭𝘢𝘺 𝘛𝘩𝘦 𝘗𝘳𝘪𝘯𝘤𝘦𝘴𝘴 + 𝘚𝘤𝘢𝘳𝘭𝘦𝘵 𝘏𝘰𝘭𝘭𝘰𝘸
+* 𝘗𝘭𝘶𝘳𝘪𝘣𝘶𝘴
+* 𝘼𝙙𝙫𝙚𝙣𝙩𝙪𝙧𝙚 𝙏𝙞𝙢𝙚
+* 𝘽𝙚𝙚 & 𝙋𝙪𝙥𝙥𝙮𝙘𝙖𝙩
+* 𝘿𝙤𝙣'𝙩 𝙃𝙪𝙜 𝙈𝙚 𝙄'𝙢 𝙎𝙘𝙖𝙧𝙚𝙙
+  <br/>
+  
+ <div align="right">
+ <br/>
+ℌ𝔞𝔲𝔫𝔱𝔢𝔡 ℌ𝔬𝔱𝔢𝔩 gets it's own special font since it's what I'm fixated on atm. <br/>
+𝐁𝐨𝐥𝐝 = Love<br/>
+𝘐𝘵𝘢𝘭𝘪𝘤 = Not really in the fandom, doesn't engage with the media that much but still enjoys.<br/>
+𝘽𝙤𝙡𝙙 𝙄𝙩𝙖𝙡𝙞𝙘 = Comfort media, engages with the fandom on occasion<br/>
+<br/>
+<sub> When I say "doesn't engage with the media that much, I mean that I haven't revisited it in a moment and may forget some details or names. Same with my comfort media, I view it for comfort and may forget details as I don't revisit it very often. </sub>
+
+
+   
+  
 
 
 <br/><br/><br/>
