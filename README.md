@@ -63,7 +63,7 @@
 <br/>
 <sub> When I say "doesn't engage with the media that much, I mean that I haven't revisited it in a moment and may forget some details or names. Same with my comfort media, I view it for comfort and may forget details as I don't revisit it very often. </sub>
 
-
+ </details></div>
    
   
 
