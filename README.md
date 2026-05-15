@@ -76,6 +76,7 @@
    * ### Boundaries:
      - Venting w/out permission/asking first.
      - Don't flirt with me or ask me to date you.
+       - <sub>"Cosplay doesn't equal consent" just because I'm in a cosplay doesn't mean you get to treat me like I'm not my own individual person, don't flirt with me, even if it's just a ship.</sub>
      - If I tell you to stop doing something & it keeps happening, I will either become very mean or I will block <sub>(depends on what keeps occurring).</sub>
      - There's certain medias that I don't enjoy the fandoms of, or the shows, <sub>(Hazbin Hotel/Helluva Boss as an example)</sub>. Not a strict DNI but I'd rather not discuss the media.
        <br/>
