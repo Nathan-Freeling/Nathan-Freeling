@@ -96,6 +96,7 @@
       - <sub>not just chatgpt! That also includes character ai.</sub>
     - Encourages SH, sends photos of, and/or openly discusses the topic without warnings beforehand.
       - <sub>Healed scars in photos is fine!</sub>
+    - Spam followers
       <br/>
     
    * ### Fandom Specific:
