@@ -140,6 +140,10 @@
     - <sub>Disorganized = fearful avoidant.</sub>
   * Can come off as blunt when battery is depleted.
     - <sub>If I feel that being rude isn't warranted, I become quiet.</sub>
+  * I can be jokingly aggressive, <sub>talking in all caps or being overly sarcastic</sub>
+    - <sub>"GRRRR STOP!!!!" "Oh my GODDDDDD, I HATE YOU." → joking, not being serious.</sub>
+    - <sub>"Hey, can you stop." "You're lowkey being annoying as hell." → Serious.</sub>
+      - <sub>Sometimes I half joke when setting boundaries, and I understand that can come off as confusing, however when I become blunt and straightfoward I expect you to follow those boundaries.</sub>
   * Not a good conversationalist.
     - Depending on my mood, most of the time I like to listen to others talk!
     - <sub>I'm also just awkward, I apologize for this in advance.</sub>
