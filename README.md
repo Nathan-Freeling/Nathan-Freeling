@@ -104,6 +104,7 @@
         - <sub>Just in general weird HauHo fans (who already fit my above dni) dni!!! If you interact I **will** make fun of you and be mean to you.</sub>
         - <sub>Katherine is abusive believers, you're media illiterate. This is a Katherine appreciative household.</sub>
       - Albert's Playhouse <sub>and any media that is associated with it/similar</sub> (Bearnuts, House of Puso,<sub> anything else I haven't been unfortunate enough to come across).</sub>
+      - JK Rowling/Hairy Potty fandom.
       - Slugcat shippers.
       <br/>
       
