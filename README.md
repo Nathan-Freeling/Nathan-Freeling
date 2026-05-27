@@ -91,6 +91,9 @@
     - Proshippers/darkshippers <sub>& anybody who supports or is actively friends with individuals who identify as such.</sub>
     - Ableist, including discriminating against <sub>(or romanticizing)</sub> personality disorders or psychotic disorders.
     - Diddy/Epstein jokes, <sub>anything along those lines.</sub>
+    - Openly discussing NSFW topics on the Safe Server.<br/>
+      -<sub>Includes inappropriate ponies as well </sub>
+    - Trying to get around the censors on Ponytown to cuss excessively or to say slurs.
     - Romance/flirting is your whole personality.
     - AI art/writing, & the use of AI chatbots.
       - <sub>not just chatgpt! That also includes character ai.</sub>
