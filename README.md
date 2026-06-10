@@ -161,5 +161,15 @@
  
 <br/><br/><br/>
 
-<div align="right">"𝙏𝙝𝙚 𝙥𝙤𝙞𝙣𝙩 𝙞𝙨, 𝙝𝙖𝙪𝙣𝙩 𝙮𝙤𝙪 𝙡𝙖𝙩𝙚𝙧, 𝙗𝙪𝙙."<br/>
+<div align="right">"𝙏𝙝𝙚 𝙥𝙤𝙞𝙣𝙩 𝙞𝙨, 𝙝𝙖𝙪𝙣𝙩 𝙮𝙤𝙪 𝙡𝙖𝙩𝙚𝙧, 𝙗𝙪𝙙."<br/>  </details></div>
+
+ <div align="left"><details>
+  <summary>Blinkies</summary><br/>
+<div align="right">"𝐘𝐨𝐮 𝐤𝐧𝐨𝐰, 𝐈’𝐦 𝐠𝐥𝐚𝐝 𝐈 𝐡𝐚𝐯𝐞𝐧’𝐭 𝐩𝐚𝐢𝐝 𝐭𝐚𝐱𝐞𝐬 𝐢𝐧 𝐭𝐡𝐫𝐞𝐞 𝐲𝐞𝐚𝐫𝐬. 𝐓𝐡𝐞 𝐜𝐨𝐩𝐬 𝐚𝐫𝐞 𝐮𝐬𝐞𝐥𝐞𝐬𝐬."<br/>
+ <br/>
+ <div align="left">"𝘎𝘰𝘰𝘥, 𝘣𝘦𝘤𝘢𝘶𝘴𝘦 𝘺𝘰𝘶 𝘫𝘶𝘴𝘵 𝘤𝘰𝘯𝘧𝘦𝘴𝘴𝘦𝘥 𝘵𝘰 𝘵𝘢𝘹 𝘦𝘷𝘢𝘴𝘪𝘰𝘯 𝘰𝘯 𝘢 𝘳𝘦𝘤𝘰𝘳𝘥𝘦𝘥 𝘭𝘪𝘯𝘦." </details></div>  <br/>
       
+<img width="150" height="20" alt="aroace blinkie" src="https://github.com/user-attachments/assets/9576c407-3018-4ee6-b930-f3c76ef0a848" />
+<img width="150" height="20" alt="Agender blinkie" src="https://github.com/user-attachments/assets/5374fd89-4a7f-427d-8deb-49898ea6fc3a" />
+<img width="150" height="20" alt="Apothisexual blinkie" src="https://github.com/user-attachments/assets/9b106c1a-da1a-4e5e-af85-7158e47d428f" />
+
