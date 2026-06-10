@@ -20,6 +20,7 @@
   
   * I'm an artist & I like to write occasionally 
   * Aroace + Agender
+    - <sub>Sex-repulsed, Romance-Averse</sub> <br/>
     - <sub>They/He/She pronouns, I don't really mind.</sub>
     <br/>
   * I love "weird" animals!
