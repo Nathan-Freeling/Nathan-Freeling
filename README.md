@@ -1,4 +1,5 @@
 
+
 ### <p align="left" wi>``𝘖𝘯𝘦 𝘣𝘢𝘥 𝘥𝘢𝘺?" 
 
 <p align="center"><img width="40%" alt="NathanandAbaddonsadwompwompp" src="https://github.com/user-attachments/assets/62d9d80d-2d9e-4106-985d-f8d508329100" </p>
@@ -165,7 +166,8 @@
 
 
       
-<img width="150" height="20" alt="aroace blinkie" src="https://github.com/user-attachments/assets/9576c407-3018-4ee6-b930-f3c76ef0a848" />
+<img width="150" height="10" alt="aroace blinkie" src="https://github.com/user-attachments/assets/9576c407-3018-4ee6-b930-f3c76ef0a848" />
+<img width="7%" alt="Aroacenotbigotrygif" src="https://github.com/user-attachments/assets/750c0982-f02f-4eaa-a1c1-8084c98b0114" />
 <img width="150" height="20" alt="Agender blinkie" src="https://github.com/user-attachments/assets/5374fd89-4a7f-427d-8deb-49898ea6fc3a" />
 <img width="150" height="20" alt="Apothisexual blinkie" src="https://github.com/user-attachments/assets/9b106c1a-da1a-4e5e-af85-7158e47d428f" />
 
