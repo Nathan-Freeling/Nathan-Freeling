@@ -8,7 +8,7 @@
 
 
 <div align="left"><details>
-  <summary>Main Info + Fandoms</summary><br/>
+  <summary>About me ﹗</summary><br/>
   <br/>
   
 
@@ -37,7 +37,7 @@
   * I can come off as apathetic or indifferent, this is in no part due to you, I just have my own issues.<br/>
   <br/>
   <div align="left"><details>
-<summary>Fandoms</summary>  
+<summary> ༘ Fandoms ᝰ</summary>  
 <br/>
    
 * ℌ𝔞𝔲𝔫𝔱𝔢𝔡 ℌ𝔬𝔱𝔢𝔩
@@ -56,6 +56,7 @@
 * 𝘽𝙚𝙚 & 𝙋𝙪𝙥𝙥𝙮𝙘𝙖𝙩
 * 𝘿𝙤𝙣'𝙩 𝙃𝙪𝙜 𝙈𝙚 𝙄'𝙢 𝙎𝙘𝙖𝙧𝙚𝙙
   <br/>
+
   
  <div align="right">
  <br/>
@@ -65,6 +66,29 @@
 𝘽𝙤𝙡𝙙 𝙄𝙩𝙖𝙡𝙞𝙘 = Comfort media, engages with the fandom on occasion<br/>
 <br/>
 <sub> When I say "doesn't engage with the media that much, I mean that I haven't revisited it in a moment and may forget some details or names. Same with my comfort media, I view it for comfort and may forget details as I don't revisit it very often. </sub>
+
+ </details></div>
+
+  <div align="left"><details>
+<summary>♪ Music ♬ </summary>  
+<br/>
+
+* 𝐓𝐡𝐞 𝐂𝐫𝐚𝐧𝐞 𝐖𝐢𝐯𝐞𝐬
+* 𝙔𝙖𝙚𝙡𝙤𝙠𝙧𝙚
+* 𝙍𝙖𝙗𝙗𝙞𝙩𝙤𝙡𝙤𝙜𝙮
+* Jhariah
+* Cosmo Sheldrake
+ <br/>
+
+  
+ <div align="right">
+ <br/>
+ The Crane Wives is my favorite band! While I love the others listed here, they have a very special place in my heart!
+<br/>
+
+ <sub>While I did discover them through fandom, the themes in their music is very personal to me. If you bring The Crane Wives up around me/use it as a talking point, please actually be prepared to discuss the themes in their music or just talk about the actual songs in general, not about how it relates to your otp kissing. Thanks.
+ <br/> Another thing, I may not be comfortable sharing some of my feelings regarding some of the songs! Not because it's anything bad, rather it can be 𝙫𝙚𝙧𝙮 personal for me, and I have a somewhat difficult time being vulnerable (especially with people I don't know very well). </sub>
+
 
  </details></div>
    
