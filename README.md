@@ -78,6 +78,9 @@
 * 𝙍𝙖𝙗𝙗𝙞𝙩𝙤𝙡𝙤𝙜𝙮
 * Jhariah
 * Cosmo Sheldrake
+* Paris Paloma
+* 𝘍𝘭𝘰𝘳𝘦𝘯𝘤𝘦 + 𝘛𝘩𝘦 𝘔𝘢𝘤𝘩𝘪𝘯𝘦 
+* PHM/Spiderverse, Widow's Bay, Rainworld + Deltarune + Ultrakill, osts in general. 
  <br/>
 
   
@@ -87,7 +90,7 @@
 <br/>
 
  <sub>While I did discover them through fandom, the themes in their music is very personal to me. If you bring The Crane Wives up around me/use it as a talking point, please actually be prepared to discuss the themes in their music or just talk about the actual songs in general, not about how it relates to your otp kissing. Thanks.
- <br/> Another thing, I may not be comfortable sharing some of my feelings regarding some of the songs! Not because it's anything bad, rather it can be 𝙫𝙚𝙧𝙮 personal for me, and I have a somewhat difficult time being vulnerable (especially with people I don't know very well). </sub>
+ <br/> Another thing, I may not be comfortable sharing some of my feelings regarding some of the songs! Not because it's anything bad, but rather it can be 𝙫𝙚𝙧𝙮 personal for me, and I have a somewhat difficult time being vulnerable (especially with people I don't know very well). </sub>
 
 
  </details></div>
