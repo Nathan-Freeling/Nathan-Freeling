@@ -194,18 +194,24 @@
 <div align="right">"𝙏𝙝𝙚 𝙥𝙤𝙞𝙣𝙩 𝙞𝙨, 𝙝𝙖𝙪𝙣𝙩 𝙮𝙤𝙪 𝙡𝙖𝙩𝙚𝙧, 𝙗𝙪𝙙."<br/>  </details></div>
 
  <div align="left"><details>
-  <summary><img width="5%" alt="Scribbled abaddon icon (1)" src="https://github.com/user-attachments/assets/e458bfd3-c669-4a4a-830e-9ec3449bef3c" />Blinkies<img width="4%" alt="Scribbled Esther icon (1)" src="https://github.com/user-attachments/assets/0e82d8ca-f8e8-4ce8-b78a-d6625cb09992" /></summary><br/>
+  <summary><img width="5%" alt="Scribbled abaddon icon (1)" src="https://github.com/user-attachments/assets/e458bfd3-c669-4a4a-830e-9ec3449bef3c" />Blinkies/Stamps<img width="4%" alt="Scribbled Esther icon (1)" src="https://github.com/user-attachments/assets/0e82d8ca-f8e8-4ce8-b78a-d6625cb09992" /></summary><br/>
       
-<img width="15%" alt="aroace blinkie" src="https://github.com/user-attachments/assets/9576c407-3018-4ee6-b930-f3c76ef0a848" />
-<img width="10%" alt="Aroacenotbigotrygif" src="https://github.com/user-attachments/assets/750c0982-f02f-4eaa-a1c1-8084c98b0114" />
-<img width="15%" alt="Agender blinkie" src="https://github.com/user-attachments/assets/5374fd89-4a7f-427d-8deb-49898ea6fc3a" />
-<img width="15%" alt="Apothisexual blinkie" src="https://github.com/user-attachments/assets/9b106c1a-da1a-4e5e-af85-7158e47d428f" />
-<img width="99" height="56" alt="Coyote Stories stamo" src="https://github.com/user-attachments/assets/40e9be8d-f156-42a1-b009-a9d5bab319f9" />
-<img width="99" height="56" alt="Fool stamp" src="https://github.com/user-attachments/assets/aa4e4a35-c2d0-46d4-9d6f-220a80d65e01" />
-<img width="99" height="56" alt="Foxlore Stamp" src="https://github.com/user-attachments/assets/bc7afa29-8813-4e9c-8bf5-077fcc54940f" />
-<img width="10%" alt="Foxlore spinning album" src="https://github.com/user-attachments/assets/eb895501-0b3a-49f9-98e7-363c56a4bc82" />
-<img width="99" height="56" alt="The Crane Wives The Well Stamp" src="https://github.com/user-attachments/assets/1786eec8-abed-4a35-92ef-e175a7f4a88a" />
-<img width="99" height="56" alt="B3yond stamp" src="https://github.com/user-attachments/assets/64ad58d5-979d-4cfe-b23c-fd34224a3c86" />
+<div align="left"><img width="15%" alt="aroace blinkie" src="https://github.com/user-attachments/assets/9576c407-3018-4ee6-b930-f3c76ef0a848" /> 
+ <img width="10%" alt="Aroacenotbigotrygif" src="https://github.com/user-attachments/assets/750c0982-f02f-4eaa-a1c1-8084c98b0114" />
+ <img width="15%" alt="Agender blinkie" src="https://github.com/user-attachments/assets/5374fd89-4a7f-427d-8deb-49898ea6fc3a" />
+<div align="left"> <img width="15%" alt="Apothisexual blinkie" src="https://github.com/user-attachments/assets/9b106c1a-da1a-4e5e-af85-7158e47d428f" />
+ <img width="99" height="56" alt="Coyote Stories stamo" src="https://github.com/user-attachments/assets/40e9be8d-f156-42a1-b009-a9d5bab319f9" />
+ <img width="99" height="56" alt="Fool stamp" src="https://github.com/user-attachments/assets/aa4e4a35-c2d0-46d4-9d6f-220a80d65e01" />
+<div align="left"> <img width="99" height="56" alt="Foxlore Stamp" src="https://github.com/user-attachments/assets/bc7afa29-8813-4e9c-8bf5-077fcc54940f" />
+ <img width="10%" alt="Foxlore spinning album" src="https://github.com/user-attachments/assets/eb895501-0b3a-49f9-98e7-363c56a4bc82" />
+ <img width="99" height="56" alt="The Crane Wives The Well Stamp" src="https://github.com/user-attachments/assets/1786eec8-abed-4a35-92ef-e175a7f4a88a" />
+<div align="left"> <img width="99" height="56" alt="B3yond stamp" src="https://github.com/user-attachments/assets/64ad58d5-979d-4cfe-b23c-fd34224a3c86" />
+
+
+
+
+
+
 
 
 
