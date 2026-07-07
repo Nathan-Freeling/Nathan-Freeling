@@ -1,5 +1,6 @@
 
 
+
 ### <p align="left" wi>``𝘖𝘯𝘦 𝘣𝘢𝘥 𝘥𝘢𝘺?" 
 
 <p align="center"><img width="40%" alt="NathanandAbaddonsadwompwompp" src="https://github.com/user-attachments/assets/62d9d80d-2d9e-4106-985d-f8d508329100" </p>
@@ -193,7 +194,7 @@
 <div align="right">"𝙏𝙝𝙚 𝙥𝙤𝙞𝙣𝙩 𝙞𝙨, 𝙝𝙖𝙪𝙣𝙩 𝙮𝙤𝙪 𝙡𝙖𝙩𝙚𝙧, 𝙗𝙪𝙙."<br/>  </details></div>
 
  <div align="left"><details>
-  <summary>Blinkies</summary><br/>
+  <summary><img width="5%" alt="Scribbled abaddon icon (1)" src="https://github.com/user-attachments/assets/e458bfd3-c669-4a4a-830e-9ec3449bef3c" />Blinkies<img width="4%" alt="Scribbled Esther icon (1)" src="https://github.com/user-attachments/assets/0e82d8ca-f8e8-4ce8-b78a-d6625cb09992" /></summary><br/>
       
 <img width="15%" alt="aroace blinkie" src="https://github.com/user-attachments/assets/9576c407-3018-4ee6-b930-f3c76ef0a848" />
 <img width="10%" alt="Aroacenotbigotrygif" src="https://github.com/user-attachments/assets/750c0982-f02f-4eaa-a1c1-8084c98b0114" />
@@ -205,7 +206,6 @@
 <img width="10%" alt="Foxlore spinning album" src="https://github.com/user-attachments/assets/eb895501-0b3a-49f9-98e7-363c56a4bc82" />
 <img width="99" height="56" alt="The Crane Wives The Well Stamp" src="https://github.com/user-attachments/assets/1786eec8-abed-4a35-92ef-e175a7f4a88a" />
 <img width="99" height="56" alt="B3yond stamp" src="https://github.com/user-attachments/assets/64ad58d5-979d-4cfe-b23c-fd34224a3c86" />
-
 
 
 
