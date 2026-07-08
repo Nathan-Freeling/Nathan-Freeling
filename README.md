@@ -197,7 +197,7 @@
  <div align="left"><details>
   <summary><img width="5%" alt="Scribbled abaddon icon (1)" src="https://github.com/user-attachments/assets/e458bfd3-c669-4a4a-830e-9ec3449bef3c" />Blinkies/Stamps<img width="4%" alt="Scribbled Esther icon (1)" src="https://github.com/user-attachments/assets/0e82d8ca-f8e8-4ce8-b78a-d6625cb09992" /></summary><br/>
       
- * <sub>𝘔𝘢𝘫𝘰𝘳𝘪𝘵𝘺 𝘰𝘧 𝘵𝘩𝘦 𝘴𝘵𝘢𝘮𝘱𝘴/𝘣𝘭𝘪𝘯𝘬𝘪𝘦𝘴 𝘩𝘦𝘳𝘦 𝘢𝘳𝘦 𝘕𝘖𝘛 𝘮𝘢𝘥𝘦 𝘣𝘺 𝘮𝘦/𝘮𝘪𝘯𝘦.</sub>
+ * <sub>𝘔𝘢𝘫𝘰𝘳𝘪𝘵𝘺 𝘪𝘧 𝘯𝘰𝘵 𝘢𝘭𝘭 𝘰𝘧 𝘵𝘩𝘦 𝘏𝘢𝘶𝘏𝘰 𝘴𝘵𝘢𝘮𝘱𝘴 𝘢𝘳𝘦 𝘮𝘢𝘥𝘦 𝘣𝘺 𝘮𝘦, 𝘢𝘴𝘴𝘶𝘮𝘦 𝘵𝘩𝘢𝘵 𝘵𝘩𝘦 𝘰𝘵𝘩𝘦𝘳𝘴 𝘢𝘳𝘦 𝘕𝘖𝘛 𝘮𝘢𝘥𝘦 𝘣𝘺 𝘮𝘦.</sub>
 
 <p align="left">
  <img src="https://github.com/user-attachments/assets/232c0ce1-3119-426d-8448-3182d946b620" width="10%" />
