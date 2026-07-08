@@ -199,6 +199,12 @@
       
  * <sub>𝘔𝘢𝘫𝘰𝘳𝘪𝘵𝘺 𝘰𝘧 𝘵𝘩𝘦 𝘴𝘵𝘢𝘮𝘱𝘴/𝘣𝘭𝘪𝘯𝘬𝘪𝘦𝘴 𝘩𝘦𝘳𝘦 𝘢𝘳𝘦 𝘕𝘖𝘛 𝘮𝘢𝘥𝘦 𝘣𝘺 𝘮𝘦/𝘮𝘪𝘯𝘦.</sub>
 
+<p align="left">
+ <img src="https://github.com/user-attachments/assets/232c0ce1-3119-426d-8448-3182d946b620" width="10%" />
+ <img src="https://github.com/user-attachments/assets/5d0d5267-524b-4f69-adae-22d4ea18c418" width="15%" />
+</p>
+
+
 
 
 <p align="left">
@@ -217,10 +223,6 @@
   <img src="https://github.com/user-attachments/assets/9b106c1a-da1a-4e5e-af85-7158e47d428f" width="15%" />
 </p>
 
-<p align="left">
- <img src="https://github.com/user-attachments/assets/232c0ce1-3119-426d-8448-3182d946b620" width="10%" />
- 
-</p>
 
 
 
