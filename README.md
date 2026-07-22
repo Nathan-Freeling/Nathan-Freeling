@@ -233,8 +233,9 @@
 </p>
 
 
-
-
+</details></div>
+  <div align="left"><details>
+  <summary>Art</summary><br/>
 
 
 
