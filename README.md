@@ -33,7 +33,8 @@
     - <sub>I collect bones, pelts, pinned bugs.. etc. </sub> 
     <br/>
   * I have three rats atm!
-     - <sub>Cal, my oldest boy is three years old. My younger two boys (Slug & Snail) are one year old!</sub>
+     - <sub>My younger two boys (Slug & Snail) are one year old!</sub>
+      - <sub>:rat:12/10/23-4/01/26, :rat:12/10/23-8/31/26</sub>
      <br/>
   * I can come off as apathetic or indifferent, this is in no part due to you, I just have my own issues.<br/>
   <br/>
