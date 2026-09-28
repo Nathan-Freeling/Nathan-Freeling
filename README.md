@@ -141,6 +141,7 @@
         - <sub>Katherine is abusive believers, you're media illiterate. This is a Katherine appreciative household.</sub>
       - Albert's Playhouse <sub>and any media that is associated with it/similar</sub> (Bearnuts, House of Puso,<sub> anything else I haven't been unfortunate enough to come across).</sub>
       - JK Rowling/Hairy Potty fandom.
+      - Hetalia/Countryball fandom.
       - Slugcat shippers.
       <br/>
       
