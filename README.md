@@ -32,7 +32,7 @@
   * I love Vulture Culture!
     - <sub>I collect bones, pelts, pinned bugs.. etc. </sub> 
     <br/>
-  * I have three rats atm!
+  * I have two rats atm!
      - <sub>My younger two boys (Slug & Snail) are one year old!</sub>
       - <sub>:rat:12/10/23-4/01/26, :rat:12/10/23-8/31/26</sub>
      <br/>
