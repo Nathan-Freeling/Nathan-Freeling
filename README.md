@@ -1,7 +1,7 @@
 
 
 
-### <p align="left" wi>``𝘖𝘯𝘦 𝘣𝘢𝘥 𝘥𝘢𝘺?" 
+### <p align="left" wi>``𝘖𝘯𝘦 𝘣𝘢𝘥 𝘥𝘢𝘺?" HEY! THIS IS OUTDATED NOW!! GO LOOK AT (@Abaddon-Freeling)[https://github.com/Abaddon-Freeling]
 
 <p align="center"><img width="40%" alt="NathanandAbaddonsadwompwompp" src="https://github.com/user-attachments/assets/62d9d80d-2d9e-4106-985d-f8d508329100" </p>
  <p align="right"> "𝘐 𝘩𝘢𝘥 𝘢 𝘭𝘰𝘵 𝘰𝘧 𝘣𝘢𝘥 𝘥𝘢𝘺𝘴.''</p>
